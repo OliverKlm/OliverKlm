@@ -1,4 +1,4 @@
-## Hi, I´m OLiver
+## Hi, I´m Oliver
 
 Electrical Engineering Student at IU Munich
 
